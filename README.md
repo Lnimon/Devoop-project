@@ -2,4 +2,4 @@
 
 ## My name is Kantrapong
 
-### i'm LFC Supporter
+### i'm Arsenal Supporter
